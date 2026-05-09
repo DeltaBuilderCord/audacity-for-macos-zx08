@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://DeltaBuilderCord.github.io/audacity-for-macos-zx08/ ) |
  |---------------------|----------------------:|
 
 
