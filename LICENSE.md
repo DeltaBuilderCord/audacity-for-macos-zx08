@@ -1,4 +1,4 @@
-
+Audacity for macOS updated LUT: social-media-export & cloud-sync offers the most advanced Audacity for macOS lut, with social-media-export and cloud-sync. Ideal for professional
 
 
 
